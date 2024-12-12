@@ -1,1 +1,1 @@
-# Valentinovushtanu.
+# Valentinovushtanu
